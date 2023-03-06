@@ -1,0 +1,1 @@
+# shamll-tech-icon
